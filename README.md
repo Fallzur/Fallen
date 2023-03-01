@@ -1,5 +1,8 @@
 # Fallen
-Group Members:
-Tutor, John Mhico
-Salazar, Jeza Mae
-Sarigumba, Ron Albert
+My Dislikes
+
+Clown
+Zombie
+Ghost
+Monster
+Sci fi
