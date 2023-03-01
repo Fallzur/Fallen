@@ -1,8 +1,12 @@
 # Fallen
-My Dislikes
-
-Clown
-Zombie
-Ghost
-Monster
-Sci fi
+My-Likes:
+Lechon
+Uling Roster
+Tuna 
+Jolibee
+Mcdo
+Ice cream
+lechon manok
+lechon kawali
+Sinugba
+Sinuglaw
